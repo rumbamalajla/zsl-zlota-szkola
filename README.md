@@ -1,2 +1,2 @@
-# zsl-zlota-szkola
+# ZSŁ złota szkoła
 Szkoła przyszłości
